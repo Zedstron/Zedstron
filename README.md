@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Zedstron
 - 👀 I’m interested in making devices even more smart by let them talk with hardwares or recognize real word entities using IoT, Machine Learning and Image Processing
 - 💞️ I’m looking to collaborate on all types of projects, i want to be my skills such high and compititive that there is no boundary for any type of task in any type of platform or language
-- 📫 You can reach me by Email zain26134@gmail.com or by simply WhatsApp +92 300 8261107
+- 📫 You can reach me by Email zain26134@gmail.com or by simply WhatsApp +92 305 3110094
